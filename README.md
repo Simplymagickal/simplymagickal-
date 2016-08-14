@@ -1,0 +1,2 @@
+# simplymagickal-
+BOOK OF SHADOWS 
